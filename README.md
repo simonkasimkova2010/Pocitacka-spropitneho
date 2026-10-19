@@ -1,1 +1,1 @@
-# Po-ta-ka-spropitn-ho
+# Pocitacka-spropitneho
